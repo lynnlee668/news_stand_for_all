@@ -1,0 +1,1 @@
+# news_stand_for_all
